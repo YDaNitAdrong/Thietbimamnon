@@ -7,7 +7,7 @@
 Công ty cung cấp đa dạng các thiết bị vui chơi cho trẻ em, đặc biệt là **bập bênh trẻ em**, giúp trẻ rèn luyện thể chất, phát triển khả năng giữ thăng bằng và tạo niềm vui khi chơi đùa. Các sản phẩm nổi bật bao gồm:
 
 - **Bập bênh **: Thiết kế hình đáng yêu, màu sắc tươi sáng, chất liệu nhựa cao cấp, an toàn cho bé. [Xem chi tiết](https://thietbimamnondaklak.com/san-pham/bap-benh/)
-- **Bập bênh cá heo**: Thiết kế hình cá heo đáng yêu, màu sắc tươi sáng, chất liệu nhựa cao cấp, an toàn cho bé. [Xem chi tiết](https://thietbimamnondaklak.com/san-pham/bap-benh/)
+- **Bập bênh cá heo**: Thiết kế hình cá heo đáng yêu, màu sắc tươi sáng, chất liệu nhựa cao cấp, an toàn cho bé. [Xem chi tiết](https://thietbimamnondaklak.com/san-pham/bap-benh-ca-heo/)
 - **Bập bênh cá vàng**: Thiết kế chắc chắn, giúp trẻ phát triển khả năng vận động, chơi an toàn với bạn bè. [Xem chi tiết](https://thietbimamnondaklak.com/san-pham/bap-benh-ca-vang/)
 - **Bập bênh cá heo vàng**: Kiểu dáng ngộ nghĩnh, kích thước nhỏ gọn, phù hợp với không gian lớp học và gia đình. [Xem chi tiết](https://thietbimamnondaklak.com/san-pham/bap-benh-ca-heo-vang/)
 - **Bập bênh các loại**: Nhiều mẫu mã khác nhau như bập bênh ngựa, bập bênh voi, phù hợp với sở thích của bé. [Xem chi tiết](https://thietbimamnondaklak.com/san-pham/bap-benh-cac-loai/)
